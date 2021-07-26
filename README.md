@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ThreeWayDaDon
+- 👀 I’m interested in ... Phishing, Scrapping, Fruad lmap
+- 🌱 I’m currently learning ...The basics
+- 💞️ I’m looking to collaborate on ... learning to code more
+- 📫 How to reach me ... aleslie2344@gmail.com
